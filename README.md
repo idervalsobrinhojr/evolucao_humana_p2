@@ -1,2 +1,2 @@
-# evolucao_humana_p2
-Evolução Humana (parte 2)
+# evolucao_humana_o_surgimento_humanos_anatomicamente_modernos
+Evolução Humana - O surgimento dos humanos anatomicamente modernos
